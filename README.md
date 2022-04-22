@@ -1,0 +1,2 @@
+# easycoin
+https://easycoin.biz
